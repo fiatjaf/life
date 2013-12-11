@@ -1,22 +1,12 @@
-@cheeaun's life
+@fiatjaf's life
 ===============
 
-- 20/06/1985 Born
-- 1991 Kindergarten
-- 1992-1997 Primary school - SKSJ
-- 1998-2000 Secondary school - SMKTI
-- ~2000 First computer
-- 2001-2002 Secondary school - SMKDOB
-- 04/11/2002 Phoenity is born
-- 2003-2004 Secondary school (Form 6) - SMKDOB
-- 01/2005-03/2005 First (non-technical) job
-- 08/2005-08/2008 University - UTAR
-- 11/2005 Dead hard drive of first computer
-- 07/2006-05/2007 CSS Web Designer - MindValley
-- 18/12/2006 First tweet
-- 04/2007 First laptop (HP)
-- 06/2008-07/2009 Web Developer - ZoeCity
-- 24/08/2009-26/06/2013 Front-End Developer - Wego
-- 07/2010 Second laptop (Dell)
-- 04/03/2012 HackerWeb featured on Hacker News' front page
-- 01/07/2013-~ Software Engineer - Viki
+- 23/04/1988 Nasci para trazer sabedoria a este mundo
+- 22/03/1996 Vovô e papai erraram a data do meu aniversário e me deram meu primeiro computador
+- 2000-10/2001 Joguei no time de futebol da sexta (depois sétima) série, o melhor da escola
+- 10/2001 Fui submetido à apendictomia
+- 2002-2004 Integrei o Glorioso Clã Toma Facada, o melhor time de Counter-Strike de todos os tempos
+- ~2004 Adquiri a consciência de que -o pobr- o Estado não deveria intervir tanto na economia
+- 31/12/2009 Enquanto os fogos de artifício eram lançados, eu, sozinho em casa com a perna engessada, perdia um jogo com a SER Caxias contra o Juventude no FM, mas estava feliz mesmo assim
+- 11/01/2011-~ Integro o movimento anti-xampu e anti-sabonete
+- 10/2013 Pizza só com molho e alho (sem queijo) é a melhor que tem
