@@ -9,7 +9,7 @@
 - 2001-01/2002-11 Treinei taekwondo com o lendário professor Adão
 - 2002-2004 Integrei o Glorioso Clã Toma Facada, o melhor time de Counter-Strike de todos os tempos
 - ~2004 Acordei para a obviedade de que o Estado não faz um bom serviço intervindo na economia
-- 2006-~2008 Ouvi tanto rock progressivo que até hoje meus tímpanos vibram com quebras de ritmo
+- 2006-2008 Ouvi tanto rock progressivo que até hoje meus tímpanos vibram com quebras de ritmo
 - 11/01/2007 Comecei a elaborar a minha eternamente incompleta teoria da errância e das viagens
 - 2008-11 Me tornei um economista libertário austríaco convicto
 - 2008-11/2009-12 Tive aulas de piano com o lendário professor Saulo (não suficientes para que eu me tornasse um pianista de primeiríssima qualidade)
